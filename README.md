@@ -1,4 +1,4 @@
-Hola, soy Álvaro Uribe, o también "Dual".
+Hola, soy Álvaro Augusto Uribe Rosales, o también "Dual".
 
 Tengo 16 años, soy de Honduras y te invito a ver este libro sobre lo que he estado trabajando.
 

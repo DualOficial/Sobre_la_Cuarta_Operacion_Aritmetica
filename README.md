@@ -8,6 +8,6 @@ Si quieres saber quien soy, mira mis redes:
 
 Youtube: https://www.youtube.com/@DualMath
 
-Facebook: ttps://www.facebook.com/DualMath
+Facebook: https://www.facebook.com/DualMath
 
 Tiktok: https://www.tiktok.com/@dualmath

@@ -1,6 +1,6 @@
 Hola, soy Álvaro Uribe, o también "Dual".
 
-Y te invito a ver este libro sobre lo que he estado trabajando.
+Tengo 16 años, soy de Honduras y te invito a ver este libro sobre lo que he estado trabajando.
 
 Los volumenes estan ordenados por fecha, cada uno es una actualización del anterior.
 

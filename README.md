@@ -14,4 +14,4 @@ Facebook: https://www.facebook.com/DualMath
 
 Tiktok: https://www.tiktok.com/@dualmath
 
-Instagram: https://www.tiktok.com/dual.math
+Instagram: https://www.instagram.com/dual.math
